@@ -1,4 +1,4 @@
 🖥️ Game and App Developer
 
-PTFS FS STAFF -  contact frzsted@ptfs.tamasystems.nz 
+PTFS FS STAFF -  contact frzsted@ptfsflightware.com
 
